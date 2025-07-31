@@ -1,0 +1,2 @@
+# Cha0s_Magick_Sigilizator
+Cha0s_Magick_Sigilizator
